@@ -6,7 +6,7 @@ My skins for osu, at least most of them hopefully
 ![](https://imgur.com/Fn7x1LN.png)
 
 # [mwocha](https://drive.google.com/drive/u/1/folders/1RQJwdcXCDkHWwWbpZ6RbdvqGwuqrS-tC)
-![](https://imgur.com/W3TLZWA.png)
+![](https://imgur.com/QuV6tf6.png)
 
 # [enaroh utori](https://drive.google.com/drive/u/1/folders/1ST7c4MeqV5puVLyaPnZ9y9C5wDxvZ0IT)
 ![](https://imgur.com/cc4WjLP.png)
