@@ -39,7 +39,7 @@ My skins for osu, at least most of them hopefully
 ![](https://imgur.com/QzUnVbO.jpeg)
 
 # [setsuna](https://drive.google.com/drive/u/1/folders/1y7WngCJIO0bA6-9LD-6tQ2KR6j9bduN7)
-![](https://postimg.cc/WdrgpMVv)
+![](https://i.postimg.cc/4x2555Fm/screenshot145.jpg)
 
 # [nekomiya](https://drive.google.com/drive/u/1/folders/1jt-Q_1VrJw6rfUQqr7Z8TOWLVEKZ3_Zs)
 ![](https://imgur.com/VsELyOv.jpeg)
