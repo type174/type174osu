@@ -3,7 +3,7 @@ My skins for osu, at least most of them hopefully
 
 
 # [ukinami yuzuha](https://drive.google.com/drive/u/1/folders/1OZyYSREXJ3KeCMX4mSI1HlVFaJeYtBio)
-![](https://i.imgur.com/Fn7x1LN.png)
+![](https://i.imgur.com/Fn7x1LN.jpg)
 
 # [mwocha](https://drive.google.com/drive/u/1/folders/1RQJwdcXCDkHWwWbpZ6RbdvqGwuqrS-tC)
 ![](https://imgur.com/QuV6tf6.jpeg)
