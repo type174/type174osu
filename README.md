@@ -1,12 +1,26 @@
 # type174osu
 My skins for osu, at least most of them hopefully
+last update: 5/29/26
 
+
+
+# [izuna V2](https://drive.google.com/drive/u/1/folders/12_gbjSAwV5Ayi-MUf1bCWLEJOzR_UwRA)
+![](https://i.postimg.cc/8zSRRF8B/screenshot193.jpg)
+
+# [overwatch](https://drive.google.com/drive/u/1/folders/1WhgFHfByj22Ssg8-GBDAiPWhTUjefgPe)
+![](https://i.postimg.cc/t4j33105/screenshot197.jpg)
+
+# [yuuko](https://drive.google.com/drive/u/1/folders/1yjaiV-JIfqXwAm9AbBub43RqhUVmRuG5)
+![](https://i.postimg.cc/jSbHHWVh/screenshot194.jpg)
 
 # [ukinami yuzuha](https://drive.google.com/drive/u/1/folders/1OZyYSREXJ3KeCMX4mSI1HlVFaJeYtBio)
 ![](https://i.postimg.cc/LsqV01rB/screenshot156.jpg)
 
-# [mwocha](https://drive.google.com/drive/u/1/folders/1RQJwdcXCDkHWwWbpZ6RbdvqGwuqrS-tC)
+# [mwocha v1.1](https://drive.google.com/drive/u/1/folders/1RQJwdcXCDkHWwWbpZ6RbdvqGwuqrS-tC)
 ![](https://i.postimg.cc/HLJtPyf2/screenshot158.jpg)
+
+# [mwocha v1.2](https://drive.google.com/drive/u/1/folders/1RQJwdcXCDkHWwWbpZ6RbdvqGwuqrS-tC)
+![](https://i.postimg.cc/cLSRRKqh/screenshot195.jpg)
 
 # [enaroh utori](https://drive.google.com/drive/u/1/folders/1ST7c4MeqV5puVLyaPnZ9y9C5wDxvZ0IT)
 ![](https://i.postimg.cc/MGcYrQh1/screenshot154.jpg)
